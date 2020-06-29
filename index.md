@@ -7,3 +7,5 @@ Er hat auch überhaupt nichts gegen die Witze, die über Ihn gemacht werden. Er 
 * hat einen mächtigen Bumms
 * starkes Gerechtigkeits-Empfinden
 * mag Scokolade
+
+> Hast Du Feuerschweif am Heck, spült das Wasser alles weg!
